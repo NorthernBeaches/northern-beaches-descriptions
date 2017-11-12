@@ -1,5 +1,7 @@
 The HD 12-A offers an extremely linear response and a precise, deep low frequency control. The 12” woofer guarantee a superior sound projection indoor and outdoor. It is the ideal speaker for main front of house in small PA systems, for high power monitoring and it is the best solution where higher power is required for various applications in larger venues.
 
+---
+
 The new D-Line range of portable active speakers from Italian manufacturers RCF includes not only the expected two-way, full-range enclosures and subwoofers, but extends to active line-array modules too. Up for review this month, however, is the ’12-inch plus horn’ model, the HD12A. There’s no shortage of competition in this sector, though, including from RCF themselves!
 
 My first visual impressions of the HD12A were that it seemed very well made, and that the detail and finish are very good. Even lifting the first speaker out of its shipping box was easy, as there’s a very large, rubber-backed steel handle set into the top, with another one on each side. These make the 16.7kg HD12A extremely easy to pick up and carry, whether it’s on the floor or mounted on top of something.
