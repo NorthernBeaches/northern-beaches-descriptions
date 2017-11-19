@@ -1,0 +1,1 @@
+Perfect for a backyard party  or birthday event  2 x 300 Wharfedale speakers, iPod cable and Microphone  with all the cables ready to go. This is one of our best hiring packs due to its ease of use and quick set up, its loud enough to keep the party pumping but wont resonate around the neighbourhood like some of the bigger systems.

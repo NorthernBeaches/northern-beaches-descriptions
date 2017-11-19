@@ -1,0 +1,1 @@
+Package has a hi def 3500 lumen projector a 2.6m screen 2 x 300 watt powered speakers , small mixing desk iPod cables and microphone with all stands and leads  ready for you big outdoor function. Make an impression with this over summer on Sydney’s North Shore and Northern Beaches.

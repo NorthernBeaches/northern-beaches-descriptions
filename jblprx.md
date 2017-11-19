@@ -1,0 +1,1 @@
+The 2-way 15″ is the most recognizable form of portable PA loudspeakers and offers the perfect balance between size and performance. The PRX615M truly is an exception; it’s small, light weight, versatile and powerful.

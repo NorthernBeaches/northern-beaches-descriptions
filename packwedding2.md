@@ -1,0 +1,1 @@
+Having a big wedding with several hundred guests this is the pack you need for a small band or DJ to plug into  with a mixing desk 2 microphones and 4000 watts of sound from the 4 JBL PRX speakers you will be heard. Also 2 LED Par cans to add some lighting to the Stage. We can add and take equipment away as needed.
