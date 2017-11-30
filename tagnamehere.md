@@ -1,1 +1,5 @@
-A
+Has RCF come up with the lightest-ever portable PA system? Nearly… but weighing in at 12.1kg, this brand new 8” (70w) + 1” (20w) battery powered PA system is far and away the best sounding all-in-one PA system moving today. Not only does the Move 100 drag the typically ‘kazoo sounding’ spruiking machine out from the nasal passages and into the well-renowned, powerful and highly intelligible Italian-made RCF sound, it also includes innovative features that make Move 100 perfect for many contemporary environments
+
+---
+
+The RCF Move 100 features a 16-Channel UHF receiver built in as standard, plus input via XLR-1/4” combo mic/line plus stereo RCA CD / iPod™ input (and individual controls for each). Add to that the very impressive variable voltage output socket (3-12V DC). A 6-8 hr standard battery life and 120dB SPL pumping out 70-18,000 Hz means the Move 100 will be seen in schools, shopping centres and auctions all over Australia in the very near future. Other remarkable ‘standard’ features include 35mm stand mount adaptor and digital delay to make your outdoor ‘background music and foreground speech’ function run as though the Move 100 was built for the job.
