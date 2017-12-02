@@ -1,0 +1,5 @@
+- Disco Crystal Ball LED Stage Lighting, a magic of starlight effects indoors.
+- Lighting Effects: Strobe effects; Red, Green and Blue three colors change.
+- Operational Modes: Auto, Voice-activated and DMX512 Control
+- Prismatic shell designed. Easy installation, just plug and play.
+- Great for disco parties and home events! Wonderful for club, disco, bar, KTV, party, pub etc
