@@ -2,5 +2,6 @@ For a great sounding Club style DJ pack on a budget, try this Pro level package 
 2 x CDJ 900's and DJM 800 mixer
 2 x JBL PRX or QSC K Series powered 1000 watt speakers
 2 x EV 700 watt subwoofers
-2 x LED Par cans 
+2 x LED Par cans
+
 All stands and leads included
