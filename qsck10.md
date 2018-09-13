@@ -7,7 +7,7 @@ Attractive and professional appearance.
 Rugged ABS enclosures.
 Tour-grade 18 gauge steel grilles.
 Comfortable ergonomic handles.
-35 mm pole sockets with Tilt-Direct™.
+35 mm pole sockets with Tilt-Direct
 
 
 
