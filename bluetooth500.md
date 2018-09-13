@@ -2,4 +2,4 @@ Behringer Eurolive active B112W 1000 Watt 2-Way PA Speakers come with a with Wir
 
 ---
 
- Behringer Eurolive B112W adds a High-performance Bluetooth technology to stream audio wirelessly from any Bluetooth-compatible device like your smart phone or tablet connect the speakers with the wireless link and you have a party for 100 people ready to go.
+ Behringer Eurolive B112W adds a High-performance Bluetooth technology to stream audio wirelessly from any Bluetooth-compatible device like your smart phone or tablet connect the speakers with the wireless link and you have a party for 100 people ready to go!
