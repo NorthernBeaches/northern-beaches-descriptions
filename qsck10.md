@@ -18,5 +18,5 @@ High-frequency 1.75″ diaphragm compression driver
 Frequency Response (-6 dB) 60 Hz – 18 kHz
 Frequency Range (-10 dB) 56 Hz – 20 kHz
 Nominal Coverage (-6 dB) 90° conical
-Maximum SPL (1 meter) 129 dB peak
-Power Output 1000 W Class D
+Maximum SPL (1 meter) 130 dB peak
+Power Output 2000 W Class D
