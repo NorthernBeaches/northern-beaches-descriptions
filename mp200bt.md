@@ -1,6 +1,6 @@
 Behringer MPA200BT All-in-One Portable 200-Watt Speaker with Wireless Microphone
 
-All-in-one portable PA system with full Bluetooth* connectivity
+All-in-one portable PA system with full Bluetooth connectivity
 Incredibly simple to set-up and use 
 
 200 Watts of powerful, high-quality sound for audiences of up to 500 people
