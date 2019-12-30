@@ -3,3 +3,5 @@ Rack-mountable and featuring rugged metal construction, the BLX4R offers simple 
 Super easy to use and great clarity and range makes this the first choice for a quality wireless mic.
 
 Comes with both high quality handheld SM58 mic and lapel beltpack option depending what you need for your application. 
+
+Super clear vocal reproduction make this a great choice for the professional musician or presenter.
