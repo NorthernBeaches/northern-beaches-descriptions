@@ -1,4 +1,4 @@
-Behringer Eurolive active B112W 500 Watt 2-Way PA Speakeris the best party speaker we have hear for the price, with a with Wireless Option and Integrated Mixer. 
+Behringer Eurolive active B112W 500 Watt 2-Way PA Speaker is the best party speaker we have hear for the price, with a with Wireless Option and Integrated Mixer. 
 
 This is a loud easy to set up speaker with loads of connectivity for your mic guitar or aux inputs along with super stable Bluetooth.
 Our number one hire speaker for house parties, 21st birthdays and backyard raves!!
