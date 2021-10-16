@@ -1,11 +1,9 @@
+The HD 12-A is the first choice for vocalists with its great frequency response making the highs crystal clear with no breakup.
+
+Perfect FOH speaker for up to 200 people when in pairs add a sub for extended low end and impress any audience. 
+
 The HD 12-A offers an extremely linear response and a precise, deep low frequency control. The 12” woofer guarantee a superior sound projection indoor and outdoor. It is the ideal speaker for main front of house in small PA systems, for high power monitoring and it is the best solution where higher power is required for various applications in larger venues.
 
 ---
+Made in Italy by a company with a great pedigree in live sound proven on stages the world over 
 
-The new D-Line range of portable active speakers from Italian manufacturers RCF includes not only the expected two-way, full-range enclosures and subwoofers, but extends to active line-array modules too. Up for review this month, however, is the ’12-inch plus horn’ model, the HD12A. There’s no shortage of competition in this sector, though, including from RCF themselves!
-
-My first visual impressions of the HD12A were that it seemed very well made, and that the detail and finish are very good. Even lifting the first speaker out of its shipping box was easy, as there’s a very large, rubber-backed steel handle set into the top, with another one on each side. These make the 16.7kg HD12A extremely easy to pick up and carry, whether it’s on the floor or mounted on top of something.
-
-The cabinet is made from a form of moulded composite polypropylene, and it has a smooth matte-black finish that is pleasing to look at. The hard surface feels tough, and it didn’t pick up any scratches or scuffs over the review period. Overall, it has a classy and subdued look that would not be out of place in applications where the gear needs to be heard and not seen: for example corporate, AV or theatre events. The front panel is slightly convex in the vertical plane, which results in a strong, dent-resistant grille profile. The metal grille covers and protects the whole of the front surface and is well fitted. I put a fair amount of pressure on it with my hand and it didn’t flex inwards at all. There’s no backing cloth or foam behind it, though, which would provide just that little bit of extra protection.
-
-The HD12A is equipped with a good-quality metal pole-mount socket on the bottom, and has four reasonably-sized rubber feet, which are sensibly-placed for stability. The pole socket doesn’t have a clamp screw, but the poles and tripod stands I used all fitted firmly and were easy to remove afterwards.
