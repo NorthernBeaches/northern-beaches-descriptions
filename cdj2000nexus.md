@@ -5,5 +5,5 @@ The CDJ-2000nexus can utilize different music sources, from a hard drive to USB 
 
 ---
 
-Brand new 2014 Pioneer CDJ 2000 Nexus for hire at Northern Beaches Speaker Hire call today to book business customers only.
+Brand new 2021 Pioneer CDJ 2000 Nexus for hire at Northern Beaches Speaker Hire call today to book business customers only.
 
