@@ -1,3 +1,5 @@
+Pro level powered speaker with a great sound for Bands or Dj's wanting the best hi end speaker for their event. 
+
 The NuQ-12 2-Way 12" Full Range Loudspeaker from Turbosound is a switchable active/passive full range two-way loudspeaker system designed to be used with Turbosound LMS series digital loudspeaker management systems, providing optimum system performance. NuQ systems can be controlled over a BVNet network using TurboDrive control software.
 
 The NuQ-12 consists of a front loaded 12" neodymium LF driver and a 1.4" neodymium HF compression driver on a rotatable 80°H x 50°V Converging Elliptical Waveguide, matched with an internal passive crossover network in a reflex-loaded enclosure, giving excellent pattern control and allowing a swap of horizontal and vertical coverage patterns. Bi-amp mode can be enabled by means of a rear panel switch. The trapezoidal enclosure is uniquely formed out of pre-bent plywood, which entirely eliminates four cabinet joints and provides additional benefits of superior strength, low weight and reduced internal reflections. The symmetrical shape creates an additional role as mirrored left/right monitor wedges.
