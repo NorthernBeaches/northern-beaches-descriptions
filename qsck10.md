@@ -1,4 +1,4 @@
-Brand New 2018 QSC K10.2 powered speaker
+Brand New 2021 QSC K10.2 powered speaker
 
 Lightweight portable powered speakers with legendary QSC amplifier power and reliability.
 1000 watt continuous Class D power modules in all models.
