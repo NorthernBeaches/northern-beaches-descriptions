@@ -1,9 +1,15 @@
-For vocalists, performers and active spoken word presenters, the XD-V55 family sets new standards for reliability, ease of use and superior audio quality. All XD-V55 systems – both handheld and bodypack – feature patented digital technologies that deliver sound so impressive they inspire confident, great sounding performances. Including a handheld system featuring four superb microphone models, a lavalier system with three EQ filter models and a headset featuring a high-end omnidirectional microphone capsule, the XD-V55 family is the right choice. The mic modeling delivers great sound, which remains pristine from your lips to your audience’s ears thanks to the 24-bit performance. DCL™ (Digital Channel Lock) technology keeps your signal safe the entire time.
+For vocalists, performers and active spoken word presenters, the XD-V55 family sets new standards for reliability, ease of use and superior audio quality. 
 
----
+All XD-V55 systems – both handheld and bodypack – feature patented digital technologies that deliver sound so impressive they inspire confident, great sounding performances.
 
-D-V55 digital wireless handheld microphone system is ideal for performing vocalists. Choose from four superb microphone models to find the right model that best matches your voice, need or mood. With a flick of a button on the mic, you can easily switch between models based on* top microphones including a Shure® SM58®, Sennheiser® e® 835, the famed Shure® SM57 and L6, a custom-voiced microphone developed by Line 6. And the microphone transmitter features a removable capsule that allows you to further customize the microphone’s polar pattern, frequency response and more by fitting a compatible third-party model. (Compatible with many industry-standard capsules.)
+Including a handheld system featuring four superb microphone models, a lavalier system with three EQ filter models and a headset featuring a high-end omnidirectional microphone capsule, the XD-V55 family is the right choice. 
 
-XD-V55L digital wireless lavalier microphone system is ideal for musicians, performers or active spoken word presenters who need hands-free performance. With a discreet clothing attachment, the capsule and design are optimized to reduce handling noise. Three powerful EQ filter models ensure the best sound and articulation for a variety of mic placements and performance environments.
+The mic modeling delivers great sound, which remains pristine from your lips to your audience’s ears thanks to the 24-bit performance. DCL™ (Digital Channel Lock) technology keeps your signal safe the entire time.
 
-XD-V55HS digital wireless headset system is ideal for performers or active spoken word presenters who need hands-free performance. This headset system features a secure, adjustable fit, a high-end omnidirectional microphone capsule, and a dynamic filter that reduces unwanted pops and background noises. The HS model is available in black and tan.
+D-V55 digital wireless handheld microphone system is ideal for performing vocalists.
+
+Choose from four superb microphone models to find the right model that best matches your voice, need or mood. With a flick of a button on the mic, you can easily switch between models based on* top microphones including a Shure® SM58®, Sennheiser® e® 835, the famed Shure® SM57 and L6, a custom-voiced microphone developed by Line 6.
+
+And the microphone transmitter features a removable capsule that allows you to further customize the microphone’s polar pattern, frequency response and more by fitting a compatible third-party model. (Compatible with many industry-standard capsules.)
+
+
