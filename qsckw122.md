@@ -1,7 +1,7 @@
-QSC KW122 Powered Speaker Birch Enclosure 
+QSC KW122 Powered Speaker Birch Enclosure the big brother of the K12 with a tight bass response and plenty of power 1000 watts continuous. 
 
-12” Woofer; 1.75” diaphragm compression driver
-75° Nominal coverage angle
+12” Woofer; 1.75” diaphragm compression driver 
+75° Nominal coverage angle 
 Maximum SPL 131 dB peak
 Also functions as monitor floor wedge
 1000-watt Class D power modules in all models (2 × 500 W continuous)
