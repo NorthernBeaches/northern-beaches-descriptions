@@ -10,4 +10,4 @@ Rekordbox compatible with 2 x USB inputs and link to any laptop.
 
 2 channel mixer with EQs and effects, performance controls Hot Cue Beat Loop and more.
 
-XLR outputs and Aux in are similar to the rest of the Pioneer range of quality Dj contollers.
+XLR outputs and Aux in are similar to the rest of the Pioneer range of quality Dj controllers.
