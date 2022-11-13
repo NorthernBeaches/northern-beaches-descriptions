@@ -1,6 +1,6 @@
 ### Pioneer XDJ-RX2 Controller       
 
-### Registered Business or Organization customers only  
+### Registered Business or Organisation customers only  
 
 The Pioneer XDJ-RX was hailed as a huge success and with good reason. Complete with features taken from the top of the line NXS2, the all in one controller delivered professional grade features at a very modest price.
 
