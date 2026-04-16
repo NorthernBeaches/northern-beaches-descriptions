@@ -1,1 +1,2 @@
-Saber A three in one Led Effect light with Derby, UV and Strobe.
+A three in one Led Effect light with Derby, UV and Strobe.
+Great for a big party room
