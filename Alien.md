@@ -1,0 +1,1 @@
+This standard RGB laser is ideal for small – medium spaces such as house parties, small venues etc. This 3 colour laser is sound activated and goes to the music. You will need to add a smoke machine to see the tunnels of colour come off the laser.
