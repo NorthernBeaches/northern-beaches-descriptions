@@ -1,3 +1,1 @@
-A three in one Led Effect light with Derby, UV and Strobe.
-
-Great for a big party space and looks awesome with a smoke machine
+3 great light effects in one, Derby, UV and Strobe functions looks awesome with a smoke machine 
